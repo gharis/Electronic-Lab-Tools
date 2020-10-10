@@ -19,3 +19,6 @@ https://www.youtube.com/watch?v=rR5cEFRO9_s
 https://www.youtube.com/watch?v=TWKY6W1C9yM
 
 https://www.youtube.com/watch?v=nAlNP-Z4QAQ
+
+## Function Generator 
+https://www.youtube.com/watch?v=mLKPwWGBtIw
